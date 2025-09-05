@@ -1,1 +1,1 @@
-[Presentation1.pdf](https://github.com/user-attachments/files/22172592/Presentation1.pdf)
+[RICHMOND NYARKO_CAPSTONE PROJECT 2 .pdf](https://github.com/user-attachments/files/22173523/RICHMOND.NYARKO_CAPSTONE.PROJECT.2.pdf)
